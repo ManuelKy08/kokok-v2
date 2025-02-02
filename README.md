@@ -20,7 +20,8 @@
 
 ## New versi Terbaru
 
-<a href="https://freeimage.host/i/2Z6g5va"><img src="https://iili.io/2Z6g5va.md.png" alt="2Z6g5va.md.png" border="0"></a><br /><a target='_blank' href='https://freeimage.host/'>img host</a><br />
+<a href="https://freeimage.host/i/2Z6g5va">
+  <img src="https://iili.io/2Z6g5va.md.png" alt="2Z6g5va.md.png" border="0"></a>
 
 
 ## Notice
